@@ -1,4 +1,4 @@
-![alt text](https://i.ibb.co/98ZBtFr/Bunch2.png "Logo Title Text 1")
+![alt text](https://i.ibb.co/Xy6fk1R/bg.png "Logo Title Text 1")
 
 # Hi there 👋
 
